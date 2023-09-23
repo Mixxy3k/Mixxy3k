@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Hello ヾ(≧▽≦*)o
 <!--
 **Mixxy3k/Mixxy3k** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
